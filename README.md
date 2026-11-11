@@ -16,8 +16,8 @@ Furqan Scale helps businesses improve their online visibility through SEO, digit
 
 ## Official Website
 
-Visit our website:
+Visit Furqan Scale for SEO and Digital Marketing Services:
 
-https://furqanscale.netlify.app/
+[Furqan Scale – Official Website](https://furqanscale.netlify.app/)
 
-**Furqan Scale – Build Your Presence. Grow Your Business. Scale Your Success!**
+Build Your Presence. Grow Your Business. Scale Your Success!
